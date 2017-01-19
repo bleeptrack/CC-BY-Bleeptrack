@@ -1,2 +1,2 @@
 # CC-BY-Bleeptrack
-collection of my cc-by images
+collection of my CC-BY Bleeptrack images
